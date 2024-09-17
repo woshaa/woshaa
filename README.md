@@ -1,7 +1,7 @@
 ## Hi there ♡〜٩( ˃▿˂ )۶〜♡
 =====================================
 
-→ Please call me woshaa /n
+→ Please call me woshaa
 → Pronouns are He/Him
 → Currently 17 years old
 
