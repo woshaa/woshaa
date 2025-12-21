@@ -3,7 +3,7 @@
 
 → Please call me woshaa
 → Pronouns are He/Him
-→ Currently 17 years old
+→ Currently 18 years old
 
 =====================================
 
